@@ -1,0 +1,1 @@
+# benin-multimodal-ai-hackathon
